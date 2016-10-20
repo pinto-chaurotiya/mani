@@ -1,0 +1,2 @@
+# mani
+i am study
